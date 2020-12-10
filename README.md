@@ -1,0 +1,2 @@
+# Career-Connections
+A platform designed and developed to connect company owners, employers, and employees alike; It's purpose is to make projects and employment easier and more conveniently accessible and accomplishable; For both veteran workers, but also first time employees. The primary benefit is that with this platform contract work mainly advertised through close knit groups and websites can be accessible and applicable through a close interconnected repository. This platform with be the founding basis for future employment/ employee endeavors for generations to come.
